@@ -1,0 +1,1 @@
+Concatenate the two parts of the password to unlock the zip file and unveil the sound of god (the sound of flag I meant). File naming is to your convenience.
